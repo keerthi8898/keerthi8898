@@ -6,7 +6,8 @@ I'm a **Data Analyst** with a Master's in Communication Engineering and Bachelor
 
 📍 **Hofheim, Hessen, Germany**  
 📧 **keerthigummadi98@gmail.com**  
-🔗 [LinkedIn](https://www.LinkedIn.com/keerthi-balaji98) | [GitHub](https://github.com/keerthi8898)  
+🔗 [LinkedIn](https://www.LinkedIn.com/keerthi-balaji98)
+ | [GitHub](https://github.com/keerthi8898)  
 
 ---
 
